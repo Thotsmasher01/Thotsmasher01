@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thotsmasher01
-- 👀 I’m interested in all sorts of stuff, from history to technology to the enviornment and gardening. Most of all, I like my cat Ginseng. 
+- 👀 I’m interested in all sorts of stuff, from history to technology to the environment and gardening. Most of all, I like my cat Ginseng. 
 - 🌱 I’m currently learning how to code lol. 
 - 💞️ I’m looking to collaborate on anything! 
 - 📫 How to reach me linkedin is Max Wong
